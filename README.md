@@ -1,4 +1,3 @@
-# HappyJingle
 Privacy Policy HAPPY JINGLE
 Privacy Policy
 Effective date: January 10, 2021
